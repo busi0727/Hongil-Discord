@@ -1,2 +1,2 @@
-# Hongil-Discord
-Hongil Discord
+# Discord Rink
+https://discord.gg/Sd9FtTrH
